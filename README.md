@@ -1,0 +1,1 @@
+predpojačalo za bass gitaru
